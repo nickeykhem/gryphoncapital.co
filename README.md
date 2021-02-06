@@ -1,1 +1,1 @@
-# gryphoncapital.co
+# Gryphon Capital
